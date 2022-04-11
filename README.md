@@ -1,1 +1,5 @@
 # repoDequipe
+
+<°)))))))))))))<
+
+bad dev
